@@ -1,1 +1,1 @@
-# sarifhusainov90.gidhab.io
+# sarifhusainov90.github.io
