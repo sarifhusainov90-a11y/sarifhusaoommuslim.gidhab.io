@@ -1,1 +1,1 @@
-# sarifhusainov90.github.io
+# sarifhusainov.github.io
